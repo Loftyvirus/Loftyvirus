@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning c,c++,css,php,python,java,javascript,arch,linux skills plus hacking skills
 - 💞️ I’m looking to collaborate on anything you ask for
 - 📫 you can contact me <a href ="https://www.facebook.com/Sanato.sae">Omni King Safal</a>
--  My inspiration who game me idea  for this is <a href="https://www.facebook.com/profile.php?id=100076195613346">Riya Malla</a> though she won't accept request!?
+- Grey Hat <a href="https://www.facebook.com/profile.php?id=100076195613346">Riya Malla</a> though she won't accept request!?
 
 
 -               GOD_PARTICLE        .::!!!!!!!:.
